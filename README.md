@@ -53,3 +53,4 @@
 
 ## 프로젝트 성과
 **NH 투자 증권 및 데이콘 주관상 , 입선상 수상🎉**
+![입선상스캔본](https://github.com/jayjinnie/Customized-Investment-Guideline/assets/65335952/3542386b-f96f-440a-9e18-3d9f8039ed4e)
